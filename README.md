@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning calligraphy and football.
 - 💞️ I’m looking to collaborate on Fashion (CHANEL,DIOR,YSL)
 - on music with BTS ,BLACKPINK
+- IN FUTURE
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact:Panda's don't have brain .
